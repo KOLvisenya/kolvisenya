@@ -1,4 +1,4 @@
-# 🎤 [Rafi "Visenya" Al Muhasibi]
+# 🎤 [Rafi "Visenya" Muhasibi]
 ### Esports Master of Ceremony & Shoutcaster
 
 Hello! I am a **Esports Master of Ceremony and Shoutcaster** with experience hosting and casting various esports events, tournaments, and community matches.
@@ -8,7 +8,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 ---
 
 ## 👤 About Me
-- Name: [Rafi Al Muhasibi]
+- Name: [Rafi Muhasibi]
 - Nickname: [Visenya]
 - Location: [Surakarta, Indonesia]
 - Role: MC | Shoutcaster | Esports Host
