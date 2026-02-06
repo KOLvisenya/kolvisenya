@@ -48,7 +48,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "Diplomat PassionVille MLBB Tournament" [Surakarta, May - 2021]
 - "Diplomat PassionVille MLBB Tournament" [Surakarta, Oct - 2021]
 - "Burjo Prapatan MLBB Tournament" [Burjo Prapatan Kartasura Sukoharjo, Jan - 2022]
-- - "SMK WARGA MLBB Championship" [SMK WARGA Surakarta, Oct - 2022] (https://www.youtube.com/live/EaHGsGUICuk?si=rNMv6z58mN59stI7)
+- "SMK WARGA MLBB Championship" [SMK WARGA Surakarta, Oct - 2022] (https://www.youtube.com/live/EaHGsGUICuk?si=rNMv6z58mN59stI7)
 - "SaGa MLBB Championship" [Karanganyar, Dec - 2022]
 - "Djarum Super MLBB & FreeFire Championship" [Rumah Dinas Bupati Karanganyar, Jan - 2023]
 - "Karanganyar E-Sports Tournament" GOR Mini Nyi Ageng Karanganyar, Jan - 2023]
