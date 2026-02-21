@@ -63,8 +63,10 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "Natus Vincere GG Trip: MAGELANG" [Armada Town Square Magelang - Oct, 2025]
 - "Natus Vincere GG Trip: YOGYAKARTA" [Luxury Malioboro Hotel Yogyakarta - Oct, 2025] (https://www.instagram.com/reel/DQGQVfbknP9/?igsh=MXV1cm01NnVydzQ5dQ==)
 - "Turnamen Esport Desa Nasional; Piala Menteri Desa & PDT; Piala Bupati Boyolali 2026" [Balai Sidang Mahesa Boyolali - Jan, 2026] (https://www.youtube.com/live/sMOW6E_cFt4?si=PZqJjiqUro78HntF ; https://www.youtube.com/live/CIQ6bhfsrBI?si=n6W1eHHg8sJFcVkq ; https://www.youtube.com/live/dZvu9r_ue70?si=PfqvTGUSrvvTXE0W)
-- "AXIS Cup Regional BOYOLALI" [SOLE Coffee and Treats, Boyolali - Jan, 2026{
+- "AXIS Cup Regional BOYOLALI" [SOLE Coffee and Treats, Boyolali - Jan, 2026]
 - "PRASASTI 10th MLBB Competition" [Solo Grand Mall - Feb, 2026] (https://youtube.com/@livestreamingesport?si=5SXViqZT1qHQ4ldt)
+- "Solo Japanese Festival #2 'Heroes Come Back: MLBB Competition'" [Lokananta Bloc Surakarta - Feb, 2026] (https://www.youtube.com/live/8EgZo_mcvCc?si=WDSXD9Xu92MnIgZ-)
+- "SMARTFEST ARENA 2026 by BEM STIAB Smaratungga" [Kampus II STIAB Smaratungga Boyolali - Feb, 2026] (https://www.youtube.com/live/wVEUdwdHxts?si=MkgzRq7_KcHZJZm-)
 
 ---
 
