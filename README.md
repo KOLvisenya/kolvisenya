@@ -67,6 +67,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "PRASASTI 10th MLBB Competition" [Solo Grand Mall - Feb, 2026] (https://youtube.com/@livestreamingesport?si=5SXViqZT1qHQ4ldt)
 - "Solo Japanese Festival #2 'Heroes Come Back: MLBB Competition'" [Lokananta Bloc Surakarta - Feb, 2026] (https://www.youtube.com/live/8EgZo_mcvCc?si=WDSXD9Xu92MnIgZ-)
 - "SMARTFEST ARENA 2026 by BEM STIAB Smaratungga" [Kampus II STIAB Smaratungga Boyolali - Feb, 2026] (https://www.youtube.com/live/wVEUdwdHxts?si=MkgzRq7_KcHZJZm-)
+- "Ngabuburit Bareng KAPOLRES KLATEN ESPORTS" [RSPD Klaten - Mar, 2026]
 
 ---
 
