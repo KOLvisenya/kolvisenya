@@ -57,7 +57,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "Karanganyar E-Sports Tournament" GOR Mini Nyi Ageng Karanganyar, Jan - 2023]
 - "AXIS Cup Regional SOLO" [Hetero Space Surakarta - Sep, 2024] 
 - "SMK Bina Patria MLBB Championship" [SMK Bina Patria Sukoharjo - Feb, 2025] (https://www.youtube.com/live/GV6lzjfyLzI?si=De82kJQZHcU7QtLp)
-- "Piala Bupati Sukoharjo" [The Park Mall Sukoharjo - Feb, 2025] (https://www.youtube.com/live/dDed5aWCw0M?si=nEHknJ82lswPFrzI)
+- "Piala Bupati Sukoharjo" [The Park Mall Solo Baru - Feb, 2025] (https://www.youtube.com/live/dDed5aWCw0M?si=nEHknJ82lswPFrzI)
 - "Natus Vincere GG Trip: SOLO" [Baron Coffee Surakarta - Agu, 2025]
 - "Telkomsel Battle of School" [Palur Plasa Karanganyar - Sep, 2025] 
 - "Natus Vincere GG Trip: MAGELANG" [Armada Town Square Magelang - Oct, 2025]
@@ -68,6 +68,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "Solo Japanese Festival #2 'Heroes Come Back: MLBB Competition'" [Lokananta Bloc Surakarta - Feb, 2026] (https://www.youtube.com/live/8EgZo_mcvCc?si=WDSXD9Xu92MnIgZ-)
 - "SMARTFEST ARENA 2026 by BEM STIAB Smaratungga" [Kampus II STIAB Smaratungga Boyolali - Feb, 2026] (https://www.youtube.com/live/wVEUdwdHxts?si=MkgzRq7_KcHZJZm-)
 - "Ngabuburit Bareng KAPOLRES KLATEN ESPORTS" [RSPD Klaten - Mar, 2026]
+- "AXIS CUP National Championship FreeFire S8" [The Park Mall Solo Baru - May, 2026] (https://www.youtube.com/live/lkudRfUHwLE?si=PMBcb9BLPOOwhg0p)
 
 ---
 
