@@ -71,7 +71,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "AXIS CUP National Championship FreeFire S8" [The Park Mall Solo Baru - May, 2026]
   (https://www.youtube.com/live/lkudRfUHwLE?si=PMBcb9BLPOOwhg0p)
 - "Piala KAPOLRES SUKOHOARJO Esports" [The Park Mall Solo Baru - May, 2026]
-- "PIALA MLBB Universitas Surakarta" [Technopark Solo - Jun, 2026] (https://www.youtube.com/live/vZy1UA96SWk?si=rJFgN-7zXwz2JY4b)
+- "PIALA MLBB Universitas Terbuka Surakarta" [Technopark Solo - Jun, 2026] (https://www.youtube.com/live/vZy1UA96SWk?si=rJFgN-7zXwz2JY4b)
 
 ---
 
