@@ -69,6 +69,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "SMARTFEST ARENA 2026 by BEM STIAB Smaratungga" [Kampus II STIAB Smaratungga Boyolali - Feb, 2026] (https://www.youtube.com/live/wVEUdwdHxts?si=MkgzRq7_KcHZJZm-)
 - "Ngabuburit Bareng KAPOLRES KLATEN ESPORTS" [RSPD Klaten - Mar, 2026]
 - "AXIS CUP National Championship FreeFire S8" [The Park Mall Solo Baru - May, 2026] (https://www.youtube.com/live/lkudRfUHwLE?si=PMBcb9BLPOOwhg0p)
+- "PIALA MLBB Universitas Surakarta" [Technopark Solo - Jun, 2026] (https://www.youtube.com/live/vZy1UA96SWk?si=rJFgN-7zXwz2JY4b)
 
 ---
 
