@@ -74,7 +74,7 @@ I am passionate about delivering engaging commentary, maintaining event flow, an
 - "PIALA MLBB Universitas Terbuka Surakarta" [Technopark Solo - Jun, 2026] (https://www.youtube.com/live/vZy1UA96SWk?si=rJFgN-7zXwz2JY4b)
 - "KAPOLDA JATENG CUP E-Sports Tournament 2026: Road to KAPOLRI CUP" [De Tjolomadoe Karanganyar - Jun 2026] (https://www.youtube.com/live/_WaHDv0xnCg?si=hs19iMweK6_yUjfa) ; (https://www.youtube.com/live/JYRYo_B83EM?si=fLjYxl-IPpqYtJ_U)
 - "Solo Champion Impact Festival: Esports Mobile Legends" [Solo Square, Surakarta - Jul, 2026] (https://www.youtube.com/live/Xld8CRIKFRA?si=v5QBVAkj0GIFol-e)
-- "Honda Vario Launc
+- "Launching Honda Vario Evo 160: Mobile Legends Tournament" [The Park Mall Solo Baru - Jul, 2026)
   
 
 ## 📬 Contact
